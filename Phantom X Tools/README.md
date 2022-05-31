@@ -1,8 +1,6 @@
 ===========================================================================================
-                                     Made By Mxtsouko
+                               Made By Mxtsouko
 
-                            Programe Pour Creer Des Token Grab 
-    en aucun cas ce nais un virus si vous avez un probleme avec le tools ajouter X*^°Mxtsouko°^*X#0880
-                                       PHANTOM X TOOLS
+            BEST GRABBER RECUP ALL TOKEN MEME APRES AVOIR CHANGER DE COMPTE
 ==========================================================================================
 
